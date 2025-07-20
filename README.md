@@ -91,11 +91,8 @@ styles/             # Custom styles
 
 ## 📬 Contact & Social Media
 
-- Email: TravelBakufromArabia@gmail.com  
-- Instagram: [@travel_azerbaijan_services](https://www.instagram.com/travel_azerbaijan_services)  
-- Facebook: [TravelBakufromArabia](https://www.facebook.com/share/1BogHn5cb5/)  
-- Snapchat: [abumuhammed448](https://www.snapchat.com/add/abumuhammed448)  
-- TikTok: [@natiqverdiyev1](https://www.tiktok.com/@natiqverdiyev1)
+- Email: maqa10573@gmail.com  
+- Instagram: https://www.instagram.com/maqa.817/
 
 ---
 
